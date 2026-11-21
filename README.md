@@ -24,7 +24,7 @@
 
 ## 二、 预览
 
-![](do c/1.png)
+![](https://www.dalao.net/upload/attach/202611/5950_PEC88YM73CRCGKV.png)
 
 ---
 
